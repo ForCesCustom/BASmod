@@ -1,0 +1,2 @@
+# BASmod
+for friend lol
